@@ -1,1 +1,0 @@
-# LOG2400_code_public
